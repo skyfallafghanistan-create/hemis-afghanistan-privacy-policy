@@ -1,0 +1,1 @@
+# hemis-afghanistan-privacy-policy
